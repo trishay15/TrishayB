@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **trishay_7@hotmail.com**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left"> Connect with me: https://www.linkedin.com/in/trishay-b-b8583a145/</h3>
 <p align="left">
 </p>
 
